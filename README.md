@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **mubarakamusani093@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/my-drive](https://drive.google.com/drive/my-drive)
+
 
 - ⚡ Fun fact **I am Funny**
 
